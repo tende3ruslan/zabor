@@ -1,0 +1,1 @@
+tekstovaja versia ne podderjivaetsa
